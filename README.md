@@ -19,4 +19,7 @@ I'm 25 years old, computer-enthusiast, studying part-time, and working full-time
 [My LinkedIn profile](www.linkedin.com/in/fredrik-straume-3570352a4)
 
 
+
+
+
 ![alt text](<images/code.png>)

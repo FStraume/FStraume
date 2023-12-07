@@ -14,7 +14,8 @@ I'm 25 years old, computer-enthusiast, studying part-time, and working full-time
 💼 I started working there in 2019
 
 
-💬 Profiles
+💬 Profiles :
+
 [My LinkedIn profile](www.linkedin.com/in/fredrik-straume-3570352a4)
 
 

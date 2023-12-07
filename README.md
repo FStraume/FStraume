@@ -11,6 +11,7 @@ I'm 25 years old, computer-enthusiast, studying part-time, and working full-time
 
 
 💼 im currently working full-time at the Norwegian Armed Forces
+
 💼 I started working there in 2019
 
 
